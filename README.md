@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @secalliancemax
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate
+- 📫 How to reach me...........please don't
